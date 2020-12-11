@@ -19,4 +19,4 @@ Preview : https://streamable.com/328krx <br>
 - 💻 My Discord : Akashi#1228<br>
 - ⛔ I dont selling this resource.
 
-<h4> Bye 😄 </h4>
+<h4> Bye ! 😄 </h4>
